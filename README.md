@@ -1,4 +1,4 @@
-# Welcome to My Profile‼️
+# Welcome to My Profile!
 
 Hello, my name is Rushil Jadia and I am an undergrad student at the University of North Carolina at Charlotte, majoring in Computer Science. I enjoy project-based experiences that emphasize problem-solving and analytical thinking to provide effective solutions to the client, something that led me to pursue a Software Engineering concentration. I am looking for internship experiences that will emphasize my strengths while allowing me to continue learning and expanding my knowledge.
 
